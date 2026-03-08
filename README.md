@@ -1,0 +1,1 @@
+# EmEditor-Professional-Patch
